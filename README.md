@@ -9,4 +9,6 @@ ok bro i forgot to be myself uhhf… im a minor so dont say weird stuff 2 me , :
 
 dont ask why ts is low budget bc i js started github ok bye world
 
+O wait als the player pointing down is made by me am i tuff
+
 
