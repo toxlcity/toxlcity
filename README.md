@@ -11,4 +11,5 @@ dont ask why ts is low budget bc i js started github ok . need more friends :(
 
 O wait als the player pointing down is made by me am i tuff
 
+I love complimenting your pony!! (by whisper)
 
