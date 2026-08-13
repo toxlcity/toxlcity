@@ -1,15 +1,14 @@
 HELLO MY FELLOW ROBLOXⵊANS ! ✨
 
-<img width="1280" height="1280" alt="Không Có Tiêu Đề836_20260809005611" src="https://github.com/user-attachments/assets/972d56c1-654a-4ff0-aef2-b3e9e691f870" />
+<img width="220" height="164" alt="IMG_4375" src="https://github.com/user-attachments/assets/0c9d28a0-a5ed-407b-9845-7eba6cb3b17b" />
 
- For the 7 lengendary swords..🗡️ 
 
-ok bro i forgot to be myself uhhf… im a minor so dont say weird stuff 2 me , :(
-<img width="200" height="200" alt="IMG_8728" src="https://github.com/user-attachments/assets/e539afee-ad8f-4699-a6fc-926179cb2b9b" />
+Multifandomm!
 
-dont ask why ts is low budget bc i js started github ok . need more friends :(
+Im a minor hi,,, (12)
+mostly offtab srry for not resp/late resp!!
 
-O wait als the player pointing down is made by me am i tuff
+<img width="640" height="431" alt="IMG_4377" src="https://github.com/user-attachments/assets/841f4a34-f74a-4192-a2ca-05a61f4b64d6" />
+<img width="735" height="714" alt="IMG_4376" src="https://github.com/user-attachments/assets/a2497ebe-3126-4436-a9ea-7b5bf4f7d2ff" />
 
-I love complimenting your pony!! (by whisper)
-
+i like to compliment abt ur pony by whisper :)
