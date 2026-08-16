@@ -8,13 +8,12 @@ HELLO MY FELLOW ROBLOXⵊANS ! ✨
 
 ＊┈┈┈┈＊┈┈┈┈＊┈┈┈┈*
 
-Multifandomm!
+rude in general / non speakin’ English dni
 
-Im a minor hi,,, (12)
+★Im a minor hi,,, (12)
 mostly offtab srry for not resp/late resp!!
 
 <img width="640" height="431" alt="IMG_4377" src="https://github.com/user-attachments/assets/841f4a34-f74a-4192-a2ca-05a61f4b64d6" />
-<img width="735" height="714" alt="IMG_4376" src="https://github.com/user-attachments/assets/a2497ebe-3126-4436-a9ea-7b5bf4f7d2ff" />
 
 ｡･:*:･ﾟ★,｡･:*:･ﾟ☆
 
